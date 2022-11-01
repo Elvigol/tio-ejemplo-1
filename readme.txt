@@ -1,0 +1,1 @@
+Medusa era una hermosa joven y Poseidón la deseó para él. El dios de los mares la atacó y la violó dentro de un templo dedicado a Atenea. La diosa tomó este ataque como una ofensa y castigó a la mujer dándole serpientes en lugar de cabello y con la maldición de convertir en piedra a quien mirase.
